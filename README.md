@@ -5,4 +5,3 @@
 - 💬 Ask me about anything
 - 📫 How to reach me: LinkedIn - @Mithra Sherin
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: ...
